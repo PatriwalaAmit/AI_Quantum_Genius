@@ -1,1 +1,1 @@
-# AI_Quantum_Genius
+# AI Quantum Genius
